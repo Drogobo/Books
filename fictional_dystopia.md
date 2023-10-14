@@ -1,51 +1,51 @@
 # Education
-	It was 6:00 AM as Lucy was just waking up. His usual routine of waking up, showering, eating, relaxing, and leaving was not to be disturbed. He spent 8 minutes in the shower until he started with the cold water and shampooing his hair. He wore his usual outfit of a blue shirt and black shorts. Lucy headed downstairs to find that his sister had already finished the last box of Estrogen Flakes. Luckily, his mother had bought four more boxes over the weekend. The family tends to run out. He walked down the moist stairs into the basement to find two pairs of boxes on the top shelf. He brought the pair upstairs to separate them with a small kitchen knife. His hands almost forgot about the tape at the bottom before pulling the two boxes apart. The cereal flowed into the delicate glass bowl, filling it up.
-	"'nother bowl of those Estrogen Flakes?" Lucy's dad retorted.
-	"Yup," answered Lucy, "they're always a good start to the day."
-	Lucy sat down on the couch next to his dad. The flakes were chocolatey and smooth, just like they always are. The crunchy sounds permeated throughout the entire room.
-	"Can you stop with the chewing sounds? It sounds like you're shoving garbage into your mouth."
-	"Ok," Lucy said with vigor as he chewed.
-	Lucy sat and ate until the bowl was empty and ready to be put into the XDishMaster. It removed every possible trace of Lucy's cereal and the dog hair accumulated on the couch. The bowl was put at the bottom of the stack in the cuboard with the other shiny glass bowls. Suddenly, it was 7 AM, and his sister was already calling him to get in the car.
-	"Lucy!" she shouted while unlocking the front door. "It's time to go!"
-	"Hold on. I'm getting my stuff."
-	They headed out the front door with all of their things, ready for the new day. The 10-minute ride was completely silent. Lucy exited while Ruby stayed back and looked at her phone. When the clock struck 7:20, he headed to his first class, English. It was like any other day.
-	"… and you have to read chapter 9 for tomorrow."
-	In an instant, English class had concluded.
-	Lucy retained the entire class thanks to the Estrogen Flakes, which improved his focus from earlier. His Latin and math class passed by without a single disruption. Lunch soon came around and a sixth of the school was ready to eat. Lucy went to grab a spoon when he noticed an administrator scolding one of his peers, Benjamin Michaels.
-	"… and what's your name?!" The administrator was ready to write Ben up, but Lucy can't stand seeing a valued friend get torn apart by a 54-year-old woman.
-	"His name is Johnathan Beel."
-	"Really?" the teacher interrogated.
-	"Yes, my name is Johnathan Beel."
-	The administrator was not buying the bluff, but she still wanted to give the benefit of the doubt. She sighed.
-	"Alright, everyone, get in a line from A to Z based on last name."
-	The entire lunch room of over 200 people assembled into a line. Lucy had never seen something like this in his entire life. He found the group of last names that start with A and got right in the middle. The administrator went down the line, asking everyone their name.
-	"I'm Aden Acrbotzmit."
-	"My name's Emily Agonis."
-	This continued for six minutes straight. She even went over the dubious "Johnathan Beel".
-	"Alright, you're lucky this time."
-	The whole cafeteria reassembled into their seats in a mesmorizing order. It was like nothing ever happened.
-	"Want some yogurt?" his friend, Miles, asked.
-	"Yeah, sure, I'll have some."
-	The yogurt was the ordinary, estrogen-laced vanilla kind. There was not a single naturally occurring chemical in the entire container. After scientific discoveres enabled the production of artificial food, there was no point to organic meals. Every farm shut down years ago after the anti-agricultural laws were passed.
-	"How was the test in Mr. Secan's class?" wondered Miles.
-	"It was nothing. After I used enough A.I. to check my answers, I got a 100%," explained Lucy.
-	"What about you, Richard?"
-	"That test wasn't much. The content was covered countless time in class."
-	Although some teachers still hadn't gotten around to allowing the usage of artificial intelligence in their classes, about 97% of the school's teachers were completely fine with A.I., even during tests.
-	"Do you all want to get on a call tonight? There is an electricball game," suggested Natanchik.
-	"Yeah I could get on."
-	"Me too," Miles and Richard said at the same time.
-	That night, Lucy had a lot of science homework to do. When he got home, he started watching time-wasting videos on his phone. The night passed until 8:00 PM when he realized that he hadn't started any of it, let alone the reading he had to do. He decided to start the slow science homework and do the reading in the morning. The game started at 8:30 PM, so he had no time to waste. With all of his might he opened a new tab on his computer and answered the 20 questions in rapid succession with the help of an A.I. chatbot.
-	"Differentiate between monomers and polymers."
-	"Explain how the structure of chitin contributes to its functional properties."
-	"Explain the structure of a lipid bilayer based on the properties of the functional groups that make up the molecules."
-	His heartrate rose as he finished the questions. Lucy kicked all the competing forces out of his way to allow for the most effcient of working. The sweat pouring of his face was just a lubricant for his hand on the keyboard. It was unlike any homework he had ever done. He finished with 10 minutes to spare before the call ritual started. With his remaining 10 minutes, Lucy took a small walk around neighborhood and showered with freezing water for 2 minutes. At last, it was time to start.
-	"I'm coming!" Richard said in his house while he was running up his steps to get on the call.
-	The Oakland Gladiators were up against the Baltimore Leprechauns. This combination of teams has never competed before. It was a highly anticipated game. As the group got together, the intensity and stakes made each member know what the significance of each point was. No point was to go unapreciated, for it was 4th game of the season. Any slight mistakes could set the Oakland Gladiators away from a victory.
-	"Oh my—Is this seriously happening?!"
-	The halfway point had been reached. The Oakland Galdiators were down by 9 points. Their best player, Michael Pujempski had been put away at the start of the game but was able to be subbed in during the halftime. The Baltimore Leprechauns got a shot at a free throw.
-	"Yes yes yes yes yes yes!" everyone chanted in unison.
-    The strategy of screaming for the other team worked this time. After that, the Oakland Gladiators put away 24 points.
-	"It's actually happening!!"
-	Just like that, the team scored 23 more points without giving their oppponent a single breath of air to redeem themselves. The game ended shortly after with a win for the Oakland Gladiators. It was exactly 11:30 PM, and Lucy was ready to get to bed and rest away the night.
+>It was 6:00 AM as Lucy was just waking up. His usual routine of waking up, showering, eating, relaxing, and leaving was not to be disturbed. He spent 8 minutes in the shower until he started with the cold water and shampooing his hair. He wore his usual outfit of a blue shirt and black shorts. Lucy headed downstairs to find that his sister had already finished the last box of Estrogen Flakes. Luckily, his mother had bought four more boxes over the weekend. The family tends to run out. He walked down the moist stairs into the basement to find two pairs of boxes on the top shelf. He brought the pair upstairs to separate them with a small kitchen knife. His hands almost forgot about the tape at the bottom before pulling the two boxes apart. The cereal flowed into the delicate glass bowl, filling it up.
+>"'nother bowl of those Estrogen Flakes?" Lucy's dad retorted.
+>"Yup," answered Lucy, "they're always a good start to the day."
+>Lucy sat down on the couch next to his dad. The flakes were chocolatey and smooth, just like they always are. The crunchy sounds permeated throughout the entire room.
+>"Can you stop with the chewing sounds? It sounds like you're shoving garbage into your mouth."
+>"Ok," Lucy said with vigor as he chewed.
+>Lucy sat and ate until the bowl was empty and ready to be put into the XDishMaster. It removed every possible trace of Lucy's cereal and the dog hair accumulated on the couch. The bowl was put at the bottom of the stack in the cuboard with the other shiny glass bowls. Suddenly, it was 7 AM, and his sister was already calling him to get in the car.
+>"Lucy!" she shouted while unlocking the front door. "It's time to go!"
+>"Hold on. I'm getting my stuff."
+>They headed out the front door with all of their things, ready for the new day. The 10-minute ride was completely silent. Lucy exited while Ruby stayed back and looked at her phone. When the clock struck 7:20, he headed to his first class, English. It was like any other day.
+>"… and you have to read chapter 9 for tomorrow."
+>In an instant, English class had concluded.
+>Lucy retained the entire class thanks to the Estrogen Flakes, which improved his focus from earlier. His Latin and math class passed by without a single disruption. Lunch soon came around and a sixth of the school was ready to eat. Lucy went to grab a spoon when he noticed an administrator scolding one of his peers, Benjamin Michaels.
+>"… and what's your name?!" The administrator was ready to write Ben up, but Lucy can't stand seeing a valued friend get torn apart by a 54-year-old woman.
+>"His name is Johnathan Beel."
+>"Really?" the teacher interrogated.
+>"Yes, my name is Johnathan Beel."
+>The administrator was not buying the bluff, but she still wanted to give the benefit of the doubt. She sighed.
+>"Alright, everyone, get in a line from A to Z based on last name."
+>The entire lunch room of over 200 people assembled into a line. Lucy had never seen something like this in his entire life. He found the group of last names that start with A and got right in the middle. The administrator went down the line, asking everyone their name.
+>"I'm Aden Acrbotzmit."
+>"My name's Emily Agonis."
+>This continued for six minutes straight. She even went over the dubious "Johnathan Beel".
+>"Alright, you're lucky this time."
+>The whole cafeteria reassembled into their seats in a mesmorizing order. It was like nothing ever happened.
+>"Want some yogurt?" his friend, Miles, asked.
+>"Yeah, sure, I'll have some."
+>The yogurt was the ordinary, estrogen-laced vanilla kind. There was not a single naturally occurring chemical in the entire container. After scientific discoveres enabled the production of artificial food, there was no point to organic meals. Every farm shut down years ago after the anti-agricultural laws were passed.
+>"How was the test in Mr. Secan's class?" wondered Miles.
+>"It was nothing. After I used enough A.I. to check my answers, I got a 100%," explained Lucy.
+>"What about you, Richard?"
+>"That test wasn't much. The content was covered countless time in class."
+>Although some teachers still hadn't gotten around to allowing the usage of artificial intelligence in their classes, about 97% of the school's teachers were completely fine with A.I., even during tests.
+>"Do you all want to get on a call tonight? There is an electricball game," suggested Natanchik.
+>"Yeah I could get on."
+>"Me too," Miles and Richard said at the same time.
+>That night, Lucy had a lot of science homework to do. When he got home, he started watching time-wasting videos on his phone. The night passed until 8:00 PM when he realized that he hadn't started any of it, let alone the reading he had to do. He decided to start the slow science homework and do the reading in the morning. The game started at 8:30 PM, so he had no time to waste. With all of his might he opened a new tab on his computer and answered the 20 questions in rapid succession with the help of an A.I. chatbot.
+>"Differentiate between monomers and polymers."
+>"Explain how the structure of chitin contributes to its functional properties."
+>"Explain the structure of a lipid bilayer based on the properties of the functional groups that make up the molecules."
+>His heartrate rose as he finished the questions. Lucy kicked all the competing forces out of his way to allow for the most effcient of working. The sweat pouring of his face was just a lubricant for his hand on the keyboard. It was unlike any homework he had ever done. He finished with 10 minutes to spare before the call ritual started. With his remaining 10 minutes, Lucy took a small walk around neighborhood and showered with freezing water for 2 minutes. At last, it was time to start.
+>"I'm coming!" Richard said in his house while he was running up his steps to get on the call.
+>The Oakland Gladiators were up against the Baltimore Leprechauns. This combination of teams has never competed before. It was a highly anticipated game. As the group got together, the intensity and stakes made each member know what the significance of each point was. No point was to go unapreciated, for it was 4th game of the season. Any slight mistakes could set the Oakland Gladiators away from a victory.
+>"Oh my—Is this seriously happening?!"
+>The halfway point had been reached. The Oakland Galdiators were down by 9 points. Their best player, Michael Pujempski had been put away at the start of the game but was able to be subbed in during the halftime. The Baltimore Leprechauns got a shot at a free throw.
+>"Yes yes yes yes yes yes!" everyone chanted in unison.
+>The strategy of screaming for the other team worked this time. After that, the Oakland Gladiators put away 24 points.
+>"It's actually happening!!"
+>Just like that, the team scored 23 more points without giving their oppponent a single breath of air to redeem themselves. The game ended shortly after with a win for the Oakland Gladiators. It was exactly 11:30 PM, and Lucy was ready to get to bed and rest away the night.
 # Don't worry.
