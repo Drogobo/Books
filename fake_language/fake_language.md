@@ -38,12 +38,10 @@
 - Syllables will always have a CV(n) structure.
 
 ## Vocabulary
-- All verbs end in "i"
-- All nouns end in "o"
-- All adjectives end in "e"
-- All adverbs end in "u"
-- Everything else falls under functional words
-- Any noun/adjective/verb can be turned into a noun/adjective/verb by changing the ending
-- Names follow these rule too
+- All verbs are marked in the sentence
+- All objects are marked in the sentence
+- Objects can be plural with an -n suffix
+- The word order stays consistent no matter what
+- Any noun/adjective/verb can be turned into a noun/adjective/verb by changing the placement in the sentence
 - Functional words are always one syllable (this includes linking verbs)
 - Stress is always on the first syllable
