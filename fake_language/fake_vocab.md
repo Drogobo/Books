@@ -87,7 +87,11 @@ These words are only nouns and can't be put into verbs.
 
 ## Example sentences
 "I saw my friend at the mountain." → "Wa yuza la wi lo we e waniki le wi len ke."
+
 "He will tell me to work." → "Zu nu lo fo e ki o fa kin a wi."
+
 "You might want my tool." → "Ka lo pu e yu le wi len go."
+
 "I turn my knowledge into a friend." → "Wi lo fa e ku a waniki."
+
 "The mountain wanted a friend." → "Ke yuza lo pu e waniki."
