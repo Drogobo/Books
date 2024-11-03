@@ -1,11 +1,11 @@
 # Fake language Vocab
-These are the basic words of the language
+These are the basic words of the language. Do notice that definitions are in English, but they don't have to exactly match the English translation.
 
-## Functional Words
+## Function Words
 These words have almost no meaning on their own.
 
 ### Indefinite Position
-These don't change the meaning of the sentence no matter where they are as long as they are in the same clause.
+These change the meaning of the clause they are in.
 
 - ya (present tense marker)
 - ke (past tense marker)
@@ -13,7 +13,7 @@ These don't change the meaning of the sentence no matter where they are as long 
 - go (uncertainty marker)
 
 ### Definite Position
-These **have** to be put in the right spot to work correctly.
+These **have** to be put in the right spot to work correctly. Some of these act like adjectives, nouns, or they go at the end of the sentence.
 
 - gu (what?) (put in the place of the thing you want to know)
 - yo (how)
@@ -23,14 +23,14 @@ These **have** to be put in the right spot to work correctly.
 - ki (opening relative clause)
 - kin (closing relative clause)
 - po (also)
-- en (and)
+- ye (and)
 - fu (or)
 - ye (so)
 - na (but)
 - la (seperate context and main sentence)
 - lan (seperate main sentence and context)
 - ni (no, not)
-- pi (yes, sure, definitely)
+- pa (yes, sure, definitely)
 - e (object marker)
 - lo (predicate marker for regular verbs)
 - lon (predicate nominatives only)
@@ -62,28 +62,22 @@ The verb form of everything ALWAYS comes after the word "lo".
 It is there and only there.
 
 #### Verb/Noun/Adjective Words
-These could be either verbs or nouns depending on their placement in the sentence.
+These could be either verbs, adjectives, or nouns depending on their placement in the sentence. Some of these don't have a verb or adjective counterpart, so use them with that knowledge.
 
 - fo (to say/tell, a statement, said)
 - no (to destory, nothing, un-)
 - gi (to have, a possesion, owned)
-- ku (to know, knowledge, )
+- ku (to know, knowledge, knowing)
 - pe (to think, a belief)
-- fa (to make/do/work, a work)
-- we (to see, vision)
-- yu (to use, a tool)
-- pu (to want, a want)
-- wa (to come, a coming)
-- pa (to give, a gift)
-
-#### Nouns Only
-These words are only nouns and can't be put into verbs.
-
+- fa (to make/do/work, a work, proved)
+- we (to see, vision, seen)
+- yu (to use, a tool, useful)
+- pu (to want, a want, wanted)
+- ja (to come, a coming)
+- pa (to give, a gift, gifted)
+- lawiko (to restrict, a restriction, restricted)
 - yuza (mountain)
 - waniki (friend)
-
-#### Helping Verbs
-
 
 ## Example sentences
 "I saw my friend at the mountain." → "Wa yuza la wi lo we e waniki le wi len ke."
@@ -94,4 +88,4 @@ These words are only nouns and can't be put into verbs.
 
 "I turn my knowledge into a friend." → "Wi lo fa e ku a waniki."
 
-"The mountain wanted a friend." → "Ke yuza lo pu e waniki."
+"My possesions were ." → "We le wi len lo lawiko ke."
